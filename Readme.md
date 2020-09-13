@@ -1,0 +1,4 @@
+the recipe is the white marble cake
+A marble cake is a cake with a streaked or mottled appearance (like marble) achieved by very lightly blending light and dark batter.[1] It can be a mixture of vanilla and chocolate cake, in which case it is mainly vanilla, with streaks of chocolate. Other possibilities are strawberry or other fruit flavors, or (particularly in marbled coffee cakes) cinnamon or other spices.
+
+The first print references to marble cake begin appearing in the last quarter of the 19th century. One popular variation of this recipe during Victorian times was “Harlequin cake,”[1] which was baked with checkerboard patterns. Early recipes used molasses and spices to achieve the dark-colored batter.[2]
